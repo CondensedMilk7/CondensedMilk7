@@ -1,4 +1,4 @@
-![](./tuta-panorama.png)
+![](./puma-cropped.jpg)
 
 # Welcome | გამარჯობა
 
